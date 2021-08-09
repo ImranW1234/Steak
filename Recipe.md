@@ -1,0 +1,1 @@
+Season the steak with salt and pepper then heat ur pan and put oil on it, then cook the steak and season it again while its on the pan and let it cook till its medium rare, rare, well done or whatever temperature you want then you are ready to eat.
